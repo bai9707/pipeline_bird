@@ -1,1 +1,1 @@
-Online link：http://cocos_a.longxutang.cn<br>
+Online link：https://gamea.longxutang.cn<br>
